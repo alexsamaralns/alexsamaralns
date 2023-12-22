@@ -1,4 +1,5 @@
-![new_banner](https://github.com/alexsamaralns/Alex-Amaral/assets/34780891/e293d112-f8b8-43b1-b5fb-f20c08990c99)
+![new_banner](https://github.com/alexsamaralns/alexsamaralns/assets/34780891/fb565f69-3f85-41ad-ba0d-3f166cc98869)
+
 
 # Hi 👋, about me
 
